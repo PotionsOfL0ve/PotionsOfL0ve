@@ -1,3 +1,8 @@
+   ${\color{#FF0000}\textsf{                   BASIC DNI CRITERIA}}$
+
+
+   
+
 I am a TSC Yumeshipper. Please dni doubles ♡
 
 U.N Owen was ${\color{#FF0000}\textsf{Her? }}$
